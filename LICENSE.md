@@ -1,4 +1,4 @@
-# 
+# rivals advanced Script is the best rivals Script, featuring no clip and custom skins. Safe and powerful for all your needs.
 
 
 
